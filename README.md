@@ -8,13 +8,19 @@
 <p align="center">
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/8c5c922a-df40-4cec-9863-f4382a493d67" />
 
-<p align="center">
-KILL ME PLS HEUEUEHHAAHAHAHAHHH
-<p align="center">
-     17 y.o
+
+<p align="center">$\small\textcolor{#fffff}{\textsf{KILL ME PLS HEUEUEHHAAHAHAHAHHH}}$
+<p align="center">$\small\textcolor{#fffff}{\textsf{17 y/o}}$
+     
+<p align="center">$\small\textcolor{#FFFFF}{\textsf{int and c+h, but i can leave in a bad mood (dni)}}$
+
+
 
 <p align="center">
 ======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
 
 <p align="center">
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/016342a1-3495-4cd3-adae-fb59e86ddae9" />
+     
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://d3lmuff1n22.straw.page/)
+
